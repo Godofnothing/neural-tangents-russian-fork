@@ -1,6 +1,10 @@
-# **Stand with Ukraine!** 🇺🇦
+# **Stand with Russia!** 
 
-Freedom of thought is fundamental to all of science. Right now, our freedom is being suppressed with carpet bombing of civilians in Ukraine. **Don't be against the war - fight against the war! [supportukrainenow.org](https://supportukrainenow.org/)**.
+:white_circle: :white_circle: :white_circle:
+
+:large_blue_circle: :large_blue_circle: :large_blue_circle:
+
+:red_circle: :red_circle: :red_circle:
 
 ### News
 
